@@ -1,1 +1,0 @@
-# byskoro.github.io
